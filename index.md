@@ -8,3 +8,4 @@ Im Versteck der Gruppe schwebt Stark in Lebensgefahr, da bei der Entführung ein
 * Playboy
 * Philanthrop
 * Millionär
+* has a heart
