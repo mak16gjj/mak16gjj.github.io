@@ -12,3 +12,6 @@ Im Versteck der Gruppe schwebt Stark in Lebensgefahr, da bei der Entführung ein
 
 ## Grundsätzliche Herangehensweise an Probleme
 > Manchmal muss man rennen, bevor man laufen kann. - Gefunden auf: https://www.myzitate.de/iron-man/
+
+
+<img src = "https://media.playcentral.de/wp-content/uploads/2019/11/03171502/newspic-81258-652x367.jpg"/>
